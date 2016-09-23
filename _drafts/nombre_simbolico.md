@@ -1,6 +1,10 @@
 
 # Nombre Símbólico
  
+ 
+ 
+![alt text](https://github.com/logiamaquiavelo/logiamaquiavelo.github.io/blob/master/images/___marat.jpg)
+ 
 Elegir un nombre simbólico para trabajar en nuestra orden es una tarea compleja. Nadie quiere cargar con un nombre cuestionable. En general uno quiere encontrar un personaje que no provoque reparos, que sea un ejemplo imitable, intachable. Pero encarar así la tarea es en vano, ya que no existe persona incuestionable.
  
 En mi caso, asumiendo los aciertos y errores del personaje, quiero reivindicar al hermano masón Jean Paul Marat, personaje central de la Revolución Francesa, uno de los acontecimientos de mayor impacto en la historia de la humanidad, y que precisamente se identifica con nuestros principios fundamentales de Libertad, Igualdad y Fraternidad.
