@@ -17,7 +17,7 @@ El primero de sus varios libros sobre filosofía y ciencias fue el “Ensayo fil
  
 Escribió un “Ensayo sobre la gonorrea” que le proporcionó reconocimiento como doctor en medicina por la Universidad de Saint Andrews, También escribió novelas, ensayos sobre física y hasta tradujo al francés obras de Newton, cuyas teorías se atrevió a cuestionar.
  
-En el Reino Unido, redactó un “Plan de legislación criminal”, basado en los principios del marqués de Beccaria (defensa de la legalidad, proporcionalidad de las penas, prohibición de la tortura, etc), y llegó a postular que los más desposeídos, a los que la sociedad no les garantizaba condiciones mínimas de existencia, podía considerar roto el contrato social, de modo que el robo practicado por ellos no podía ser penado.
+En el Reino Unido, redactó un _“Plan de legislación criminal”_, basado en los principios del marqués de Beccaria (defensa de la legalidad, proporcionalidad de las penas, prohibición de la tortura, etc), y llegó a postular que los más desposeídos, a los que la sociedad no les garantizaba condiciones mínimas de existencia, podía considerar roto el contrato social, de modo que el robo practicado por ellos no podía ser penado.
  
 De regreso en París, en 1784, trabajó como médico de algunos nobles, entre ellos el Conde de Artois, también masón, y hacia 1786 renuncia a sus cómodos ingresos por su manifiesta simpatía con las ideas de la ilustración. Se dedica entonces a atender a pobres e indigentes con una especie de servicio médico social, idea inédita para la época, ya que les cobra por sus servicios una pequeña cuota mensual.
  
